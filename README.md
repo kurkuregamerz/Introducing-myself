@@ -1,4 +1,4 @@
-# Hello, I’m Your Ishan Karar👋  
+# Hello, I’m  Ishan Karar👋  
 Developer | Learner | Creator
 
 ---
