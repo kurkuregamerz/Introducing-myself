@@ -16,4 +16,5 @@ A Developer | Learner | Creator
 ---
 
 ## 👥️ Social media 
-- <a href="https://www.instagram.com/ishan_karar?igsh=eGVmdmppbWR6MGk3"> Instagram </a>
+- <a href="https://www.instagram.com/ishan_karar?igsh=eGVmdmppbWR6MGk3"> Instagram </a> 
+- <a href="https://www.facebook.com/share/1GMjMBF6U6/"> Facebook </a>
