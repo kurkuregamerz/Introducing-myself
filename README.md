@@ -13,5 +13,7 @@ Developer | Learner | Creator
 ## 🎓 Education
 - Studying in class 8 
 
+---
+
 ##👥️Social media 
 - <a href="https://www.instagram.com/ishan_karar?igsh=eGVmdmppbWR6MGk3"> Instagram </a>
