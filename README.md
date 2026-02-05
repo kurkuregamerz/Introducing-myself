@@ -1,5 +1,5 @@
 # Hello, I’m  Ishan Karar👋  
-Developer | Learner | Creator
+A Developer | Learner | Creator
 
 ---
 
